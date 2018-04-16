@@ -1,1 +1,1 @@
-Inicializando b
+B está procesandose
